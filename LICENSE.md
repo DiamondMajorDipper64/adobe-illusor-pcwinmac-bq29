@@ -1,4 +1,4 @@
-# 
+# متقدم Adobe Illustrator سير العمل لـ Mac OS | ذكي Adobe Illustrator سير العمل لـ PC Windows. مع طبقات الضبط و محاكاة الفيزياء — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
